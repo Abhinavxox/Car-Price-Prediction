@@ -28,7 +28,7 @@ D.S.S. Sandeep Chandra (AM.EN.U4AIE21079)
 
 ##### (Estd. U/S 3 of the UGC Act 1956)
 
-##### Amritapuri Campus Kollam -
+##### Amritapuri Campus Kollam 
 
 ##### DEPARTMENT OF COMPUTER SCIENCE & ENGINEERING AMRITA VISHWA
 
